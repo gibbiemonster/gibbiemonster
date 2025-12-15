@@ -1,3 +1,4 @@
 Hi there! 👋
 
 I previously went by `blockarchitech` around here 🙂
+`blockarchitech.com` is still mine.
